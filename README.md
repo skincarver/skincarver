@@ -16,5 +16,3 @@
 ![](https://i.imgur.com/Dj8zc4c.jpg)
 ![](https://i.imgur.com/iFctQ4C.png)
 ![](https://i.imgur.com/vw3SpXg.gif)
-![](https://media.discordapp.net/attachments/726011643800059914/1113349733453418506/949D218A-4E39-405B-BCC0-CEFC24006071.jpg?width=625&height=556)
-![](https://media.discordapp.net/attachments/726011643800059914/1113337551458160690/IMG_5337.png?width=767&height=612)
