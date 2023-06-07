@@ -5,14 +5,38 @@
 
 ![](https://media.discordapp.net/attachments/726011643800059914/1113337550728351775/IMG_5308.jpg?width=625&height=351)
 
+![](https://i.imgur.com/Khg6Xsl.gif) 
+![](https://i.imgur.com/vw3SpXg.gif)
+![](https://i.imgur.com/JgCIrmJ.gif)
+![](https://i.imgur.com/gtSNvfO.gif)
+![](https://blinkiesyay.neocities.org/buttons/gorillaz.gif)
+
 ![](https://gallery.crd.co/assets/images/gallery05/ab389e51.jpg?v=758f1f62)
 ![](https://i.imgur.com/K8YzKT2.gif)
 ![](https://i.imgur.com/ChYBrKB.png)
 ![](https://i.imgur.com/SUuEf5n.gif)
-![](https://i.imgur.com/Khg6Xsl.gif)
+![](https://images-wixmp-ed30a86b8c4ca887773594c2.wixmp.com/f/bd316f6c-3d60-43e6-a57d-8aa1f3929cfc/d5c5mog-80164f05-0128-450c-ba40-88e53def5df2.gif?token=eyJ0eXAiOiJKV1QiLCJhbGciOiJIUzI1NiJ9.eyJzdWIiOiJ1cm46YXBwOjdlMGQxODg5ODIyNjQzNzNhNWYwZDQxNWVhMGQyNmUwIiwiaXNzIjoidXJuOmFwcDo3ZTBkMTg4OTgyMjY0MzczYTVmMGQ0MTVlYTBkMjZlMCIsIm9iaiI6W1t7InBhdGgiOiJcL2ZcL2JkMzE2ZjZjLTNkNjAtNDNlNi1hNTdkLThhYTFmMzkyOWNmY1wvZDVjNW1vZy04MDE2NGYwNS0wMTI4LTQ1MGMtYmE0MC04OGU1M2RlZjVkZjIuZ2lmIn1dXSwiYXVkIjpbInVybjpzZXJ2aWNlOmZpbGUuZG93bmxvYWQiXX0.qtOniMthWSWcT__UWG3fk5tQ1V3FVnram-24LW0eqec)
 
 ![](https://external-media.spacehey.net/media/sY49J23KaVWvOnYtRZOzga73pMx9N9szGUwlD02esDeI=/https://64.media.tumblr.com/2deb19fe79d3b9b883748898e138cdda/d4d596df6bde767e-e6/s250x400/e209e303918a2c4a4d94c588d178ba30702c8f5c.pnj)
 ![](https://i.imgur.com/vNyGBar.png)
 ![](https://i.imgur.com/Dj8zc4c.jpg)
-![](https://images-ext-2.discordapp.net/external/AOA18T3UJe4wAzSdGoWzl4IpYMg1wh_dGE-hGsqWsS4/https/f2.toyhou.se/file/f2-toyhou-se/thumbnails/65698651_R4K.gif?width=123&height=70))
-![](https://i.imgur.com/vw3SpXg.gif)
+![](https://images-ext-2.discordapp.net/external/AOA18T3UJe4wAzSdGoWzl4IpYMg1wh_dGE-hGsqWsS4/https/f2.toyhou.se/file/f2-toyhou-se/thumbnails/65698651_R4K.gif?width=123&height=70)
+![](https://images-wixmp-ed30a86b8c4ca887773594c2.wixmp.com/f/b0ca202e-3fe0-4680-84fa-6b42a1fb72b4/d1mcxct-22b0b229-dbeb-4589-b0dd-af072e0d39a9.gif?token=eyJ0eXAiOiJKV1QiLCJhbGciOiJIUzI1NiJ9.eyJzdWIiOiJ1cm46YXBwOjdlMGQxODg5ODIyNjQzNzNhNWYwZDQxNWVhMGQyNmUwIiwiaXNzIjoidXJuOmFwcDo3ZTBkMTg4OTgyMjY0MzczYTVmMGQ0MTVlYTBkMjZlMCIsIm9iaiI6W1t7InBhdGgiOiJcL2ZcL2IwY2EyMDJlLTNmZTAtNDY4MC04NGZhLTZiNDJhMWZiNzJiNFwvZDFtY3hjdC0yMmIwYjIyOS1kYmViLTQ1ODktYjBkZC1hZjA3MmUwZDM5YTkuZ2lmIn1dXSwiYXVkIjpbInVybjpzZXJ2aWNlOmZpbGUuZG93bmxvYWQiXX0.heVkCjm8Ex95CqCDlHNo45yXZWJi5fDQgWZ2mJwM1uw)
+
+![](https://64.media.tumblr.com/2af1d084edf1741b60eae8fcbc340b88/tumblr_pujqmxQk121xbgu08o1_100.png)
+![](https://64.media.tumblr.com/44a1c0423915260ef7ee319496034518/tumblr_pnmu0rblFF1y5vvcdo3_100.png)
+![](http://orig00.deviantart.net/15e2/f/2013/073/b/f/stamp___rin_et_len__vocaloid__by_mikufregapane-d5y04xx.gif)
+![](https://images-wixmp-ed30a86b8c4ca887773594c2.wixmp.com/f/7b86d5d7-2e41-4716-be85-f518146112a6/d8d4d7g-f26f84b1-1c35-45df-a976-a21c9a70fd69.png?token=eyJ0eXAiOiJKV1QiLCJhbGciOiJIUzI1NiJ9.eyJzdWIiOiJ1cm46YXBwOjdlMGQxODg5ODIyNjQzNzNhNWYwZDQxNWVhMGQyNmUwIiwiaXNzIjoidXJuOmFwcDo3ZTBkMTg4OTgyMjY0MzczYTVmMGQ0MTVlYTBkMjZlMCIsIm9iaiI6W1t7InBhdGgiOiJcL2ZcLzdiODZkNWQ3LTJlNDEtNDcxNi1iZTg1LWY1MTgxNDYxMTJhNlwvZDhkNGQ3Zy1mMjZmODRiMS0xYzM1LTQ1ZGYtYTk3Ni1hMjFjOWE3MGZkNjkucG5nIn1dXSwiYXVkIjpbInVybjpzZXJ2aWNlOmZpbGUuZG93bmxvYWQiXX0.vWTbeX_Wdt_BxeSUXZTLKiITdXlh_Hffu5u1Lqre_aM)
+![](https://images-wixmp-ed30a86b8c4ca887773594c2.wixmp.com/f/27ac6022-7e33-4d5c-a969-491ebb3660c9/d55lswd-23159b20-8349-47d9-a345-8782325b876b.gif?token=eyJ0eXAiOiJKV1QiLCJhbGciOiJIUzI1NiJ9.eyJzdWIiOiJ1cm46YXBwOjdlMGQxODg5ODIyNjQzNzNhNWYwZDQxNWVhMGQyNmUwIiwiaXNzIjoidXJuOmFwcDo3ZTBkMTg4OTgyMjY0MzczYTVmMGQ0MTVlYTBkMjZlMCIsIm9iaiI6W1t7InBhdGgiOiJcL2ZcLzI3YWM2MDIyLTdlMzMtNGQ1Yy1hOTY5LTQ5MWViYjM2NjBjOVwvZDU1bHN3ZC0yMzE1OWIyMC04MzQ5LTQ3ZDktYTM0NS04NzgyMzI1Yjg3NmIuZ2lmIn1dXSwiYXVkIjpbInVybjpzZXJ2aWNlOmZpbGUuZG93bmxvYWQiXX0.wotiF8p3bxp4BdhBKuRSaNimwjOu4WYyzWEc7m4ruzo)
+
+![](https://images-wixmp-ed30a86b8c4ca887773594c2.wixmp.com/f/02c7ca03-5605-4037-832f-3f02d1ae6474/d2xltwq-35548bdc-03fa-4639-97e5-aec3ca06642c.gif?token=eyJ0eXAiOiJKV1QiLCJhbGciOiJIUzI1NiJ9.eyJzdWIiOiJ1cm46YXBwOjdlMGQxODg5ODIyNjQzNzNhNWYwZDQxNWVhMGQyNmUwIiwiaXNzIjoidXJuOmFwcDo3ZTBkMTg4OTgyMjY0MzczYTVmMGQ0MTVlYTBkMjZlMCIsIm9iaiI6W1t7InBhdGgiOiJcL2ZcLzAyYzdjYTAzLTU2MDUtNDAzNy04MzJmLTNmMDJkMWFlNjQ3NFwvZDJ4bHR3cS0zNTU0OGJkYy0wM2ZhLTQ2MzktOTdlNS1hZWMzY2EwNjY0MmMuZ2lmIn1dXSwiYXVkIjpbInVybjpzZXJ2aWNlOmZpbGUuZG93bmxvYWQiXX0.q8oQ43yQ657yZuX5vprVxkdDM3FV7d8KEZXsw1uO_-U)
+![](https://images-wixmp-ed30a86b8c4ca887773594c2.wixmp.com/f/2e7c57cb-37c4-44c1-b667-8bff1105b868/d2xhdqa-683919c9-d88d-41c1-8a15-76cba8ef04a8.gif?token=eyJ0eXAiOiJKV1QiLCJhbGciOiJIUzI1NiJ9.eyJzdWIiOiJ1cm46YXBwOjdlMGQxODg5ODIyNjQzNzNhNWYwZDQxNWVhMGQyNmUwIiwiaXNzIjoidXJuOmFwcDo3ZTBkMTg4OTgyMjY0MzczYTVmMGQ0MTVlYTBkMjZlMCIsIm9iaiI6W1t7InBhdGgiOiJcL2ZcLzJlN2M1N2NiLTM3YzQtNDRjMS1iNjY3LThiZmYxMTA1Yjg2OFwvZDJ4aGRxYS02ODM5MTljOS1kODhkLTQxYzEtOGExNS03NmNiYThlZjA0YTguZ2lmIn1dXSwiYXVkIjpbInVybjpzZXJ2aWNlOmZpbGUuZG93bmxvYWQiXX0.Bpj76TXt_YBkF3oszWpXw1c0Vu1lpKQ7Ngs2BZoUlWM)
+![](https://images-wixmp-ed30a86b8c4ca887773594c2.wixmp.com/f/0938cf49-2197-4feb-8879-9c4ae5643e1b/d4mawqb-7647e377-4077-4717-a302-1ca3a13808ff.gif?token=eyJ0eXAiOiJKV1QiLCJhbGciOiJIUzI1NiJ9.eyJzdWIiOiJ1cm46YXBwOjdlMGQxODg5ODIyNjQzNzNhNWYwZDQxNWVhMGQyNmUwIiwiaXNzIjoidXJuOmFwcDo3ZTBkMTg4OTgyMjY0MzczYTVmMGQ0MTVlYTBkMjZlMCIsIm9iaiI6W1t7InBhdGgiOiJcL2ZcLzA5MzhjZjQ5LTIxOTctNGZlYi04ODc5LTljNGFlNTY0M2UxYlwvZDRtYXdxYi03NjQ3ZTM3Ny00MDc3LTQ3MTctYTMwMi0xY2EzYTEzODA4ZmYuZ2lmIn1dXSwiYXVkIjpbInVybjpzZXJ2aWNlOmZpbGUuZG93bmxvYWQiXX0.Qmli-SMoX6DCtFSdmXOEBydcvNwSrZA5ZuV4NH3419o)
+![](https://images-wixmp-ed30a86b8c4ca887773594c2.wixmp.com/f/2a4df430-58e8-459c-b549-dec82a4baf20/do90kj-c2a41ab9-5564-4753-a5b5-3c49474a527a.jpg/v1/fill/w_99,h_56,q_75,strp/deathnote_stamp_by_arcer26_do90kj-fullview.jpg?token=eyJ0eXAiOiJKV1QiLCJhbGciOiJIUzI1NiJ9.eyJzdWIiOiJ1cm46YXBwOjdlMGQxODg5ODIyNjQzNzNhNWYwZDQxNWVhMGQyNmUwIiwiaXNzIjoidXJuOmFwcDo3ZTBkMTg4OTgyMjY0MzczYTVmMGQ0MTVlYTBkMjZlMCIsIm9iaiI6W1t7ImhlaWdodCI6Ijw9NTYiLCJwYXRoIjoiXC9mXC8yYTRkZjQzMC01OGU4LTQ1OWMtYjU0OS1kZWM4MmE0YmFmMjBcL2RvOTBrai1jMmE0MWFiOS01NTY0LTQ3NTMtYTViNS0zYzQ5NDc0YTUyN2EuanBnIiwid2lkdGgiOiI8PTk5In1dXSwiYXVkIjpbInVybjpzZXJ2aWNlOmltYWdlLm9wZXJhdGlvbnMiXX0.gHT2FxOgARuQNmw0zXhSJclWpPzUKVFc4If5sgYKBlc)
+![](https://images-wixmp-ed30a86b8c4ca887773594c2.wixmp.com/f/72cae400-842a-4383-8678-1172bb3f2361/d15xndy-9b30b73d-3e98-41fd-b2ee-23eded4f1da8.png/v1/fill/w_99,h_56,q_80,strp/enjoy_everything__by_kataimiko_d15xndy-fullview.jpg?token=eyJ0eXAiOiJKV1QiLCJhbGciOiJIUzI1NiJ9.eyJzdWIiOiJ1cm46YXBwOjdlMGQxODg5ODIyNjQzNzNhNWYwZDQxNWVhMGQyNmUwIiwiaXNzIjoidXJuOmFwcDo3ZTBkMTg4OTgyMjY0MzczYTVmMGQ0MTVlYTBkMjZlMCIsIm9iaiI6W1t7ImhlaWdodCI6Ijw9NTYiLCJwYXRoIjoiXC9mXC83MmNhZTQwMC04NDJhLTQzODMtODY3OC0xMTcyYmIzZjIzNjFcL2QxNXhuZHktOWIzMGI3M2QtM2U5OC00MWZkLWIyZWUtMjNlZGVkNGYxZGE4LnBuZyIsIndpZHRoIjoiPD05OSJ9XV0sImF1ZCI6WyJ1cm46c2VydmljZTppbWFnZS5vcGVyYXRpb25zIl19.TyrkiZ7v5g8LSCBrcKwT_3s8qR59XYu61k9bAbGoC3g)
+
+![](https://raining-starss.neocities.org/goodieblink%20(20).gif)
+![](https://i.imgur.com/BTZ2CAL.png)
+![](https://i.imgur.com/8D809rV.png)
+![](https://i.imgur.com/Sv8yjCP.png)
+![](https://i.imgur.com/qlc8bpN.jpg)
