@@ -5,7 +5,7 @@
 
 ![](https://media.discordapp.net/attachments/726011643800059914/1113337550728351775/IMG_5308.jpg?width=625&height=351)
 
-![](https://i.imgur.com/Khg6Xsl.gif) 
+ ![](https://i.imgur.com/Khg6Xsl.gif) 
 ![](https://i.imgur.com/vw3SpXg.gif)
 ![](https://i.imgur.com/JgCIrmJ.gif)
 ![](https://i.imgur.com/gtSNvfO.gif)
