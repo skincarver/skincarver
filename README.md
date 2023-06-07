@@ -21,7 +21,7 @@
 ![](https://i.imgur.com/vNyGBar.png)
 ![](https://i.imgur.com/Dj8zc4c.jpg)
 ![](https://images-ext-2.discordapp.net/external/AOA18T3UJe4wAzSdGoWzl4IpYMg1wh_dGE-hGsqWsS4/https/f2.toyhou.se/file/f2-toyhou-se/thumbnails/65698651_R4K.gif?width=123&height=70)
-![](https://images-wixmp-ed30a86b8c4ca887773594c2.wixmp.com/f/b0ca202e-3fe0-4680-84fa-6b42a1fb72b4/d1mcxct-22b0b229-dbeb-4589-b0dd-af072e0d39a9.gif?token=eyJ0eXAiOiJKV1QiLCJhbGciOiJIUzI1NiJ9.eyJzdWIiOiJ1cm46YXBwOjdlMGQxODg5ODIyNjQzNzNhNWYwZDQxNWVhMGQyNmUwIiwiaXNzIjoidXJuOmFwcDo3ZTBkMTg4OTgyMjY0MzczYTVmMGQ0MTVlYTBkMjZlMCIsIm9iaiI6W1t7InBhdGgiOiJcL2ZcL2IwY2EyMDJlLTNmZTAtNDY4MC04NGZhLTZiNDJhMWZiNzJiNFwvZDFtY3hjdC0yMmIwYjIyOS1kYmViLTQ1ODktYjBkZC1hZjA3MmUwZDM5YTkuZ2lmIn1dXSwiYXVkIjpbInVybjpzZXJ2aWNlOmZpbGUuZG93bmxvYWQiXX0.heVkCjm8Ex95CqCDlHNo45yXZWJi5fDQgWZ2mJwM1uw)
+![](https://images-wixmp-ed30a86b8c4ca887773594c2.wixmp.com/f/f24cb570-85fa-49be-842c-afc5f47a7b03/d12ppy9-0d19b3f9-2ad5-4989-b36b-d1a1c8c4bdf8.png?token=eyJ0eXAiOiJKV1QiLCJhbGciOiJIUzI1NiJ9.eyJzdWIiOiJ1cm46YXBwOjdlMGQxODg5ODIyNjQzNzNhNWYwZDQxNWVhMGQyNmUwIiwiaXNzIjoidXJuOmFwcDo3ZTBkMTg4OTgyMjY0MzczYTVmMGQ0MTVlYTBkMjZlMCIsIm9iaiI6W1t7InBhdGgiOiJcL2ZcL2YyNGNiNTcwLTg1ZmEtNDliZS04NDJjLWFmYzVmNDdhN2IwM1wvZDEycHB5OS0wZDE5YjNmOS0yYWQ1LTQ5ODktYjM2Yi1kMWExYzhjNGJkZjgucG5nIn1dXSwiYXVkIjpbInVybjpzZXJ2aWNlOmZpbGUuZG93bmxvYWQiXX0.GjLRd2R3LPD1N0gUct8m53U3_4xNpI617WXEWuT71Vg)
 
 ![](https://64.media.tumblr.com/2af1d084edf1741b60eae8fcbc340b88/tumblr_pujqmxQk121xbgu08o1_100.png)
 ![](https://64.media.tumblr.com/44a1c0423915260ef7ee319496034518/tumblr_pnmu0rblFF1y5vvcdo3_100.png)
