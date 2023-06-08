@@ -11,6 +11,12 @@
 ![](https://i.imgur.com/gtSNvfO.gif)
 ![](https://blinkiesyay.neocities.org/buttons/gorillaz.gif)
 
+![](https://raining-starss.neocities.org/goodieblink%20(20).gif)
+![](https://i.imgur.com/BTZ2CAL.png)
+![](https://i.imgur.com/8D809rV.png)
+![](https://i.imgur.com/Sv8yjCP.png)
+![](https://i.imgur.com/qlc8bpN.jpg)
+
 ![](https://gallery.crd.co/assets/images/gallery05/ab389e51.jpg?v=758f1f62)
 ![](https://i.imgur.com/K8YzKT2.gif)
 ![](https://i.imgur.com/ChYBrKB.png)
@@ -18,7 +24,7 @@
 ![](https://images-wixmp-ed30a86b8c4ca887773594c2.wixmp.com/f/66403a91-931f-4147-8604-f99cf625488f/d23sihg-e0568d24-1c19-4844-b46a-7c9d47c2ea04.gif?token=eyJ0eXAiOiJKV1QiLCJhbGciOiJIUzI1NiJ9.eyJzdWIiOiJ1cm46YXBwOjdlMGQxODg5ODIyNjQzNzNhNWYwZDQxNWVhMGQyNmUwIiwiaXNzIjoidXJuOmFwcDo3ZTBkMTg4OTgyMjY0MzczYTVmMGQ0MTVlYTBkMjZlMCIsIm9iaiI6W1t7InBhdGgiOiJcL2ZcLzY2NDAzYTkxLTkzMWYtNDE0Ny04NjA0LWY5OWNmNjI1NDg4ZlwvZDIzc2loZy1lMDU2OGQyNC0xYzE5LTQ4NDQtYjQ2YS03YzlkNDdjMmVhMDQuZ2lmIn1dXSwiYXVkIjpbInVybjpzZXJ2aWNlOmZpbGUuZG93bmxvYWQiXX0.8D_d0xXVVQJ8i0Uz8AaCFkD8w8WpyI9cDHHp16op1Mw)
 
 ![](https://external-media.spacehey.net/media/sY49J23KaVWvOnYtRZOzga73pMx9N9szGUwlD02esDeI=/https://64.media.tumblr.com/2deb19fe79d3b9b883748898e138cdda/d4d596df6bde767e-e6/s250x400/e209e303918a2c4a4d94c588d178ba30702c8f5c.pnj)
-![](https://i.imgur.com/vNyGBar.png)
+![](https://images-wixmp-ed30a86b8c4ca887773594c2.wixmp.com/f/c2d6c766-78a6-4e00-8174-f70899a7283a/d3jxopo-6dc309e5-3b56-47b1-b634-01f5027dcce4.gif?token=eyJ0eXAiOiJKV1QiLCJhbGciOiJIUzI1NiJ9.eyJzdWIiOiJ1cm46YXBwOjdlMGQxODg5ODIyNjQzNzNhNWYwZDQxNWVhMGQyNmUwIiwiaXNzIjoidXJuOmFwcDo3ZTBkMTg4OTgyMjY0MzczYTVmMGQ0MTVlYTBkMjZlMCIsIm9iaiI6W1t7InBhdGgiOiJcL2ZcL2MyZDZjNzY2LTc4YTYtNGUwMC04MTc0LWY3MDg5OWE3MjgzYVwvZDNqeG9wby02ZGMzMDllNS0zYjU2LTQ3YjEtYjYzNC0wMWY1MDI3ZGNjZTQuZ2lmIn1dXSwiYXVkIjpbInVybjpzZXJ2aWNlOmZpbGUuZG93bmxvYWQiXX0.Bk_8ACdXBZQbO2UvuApFRyeTp9ozGwIr_qKkaS486Ug)
 ![](https://i.imgur.com/Dj8zc4c.jpg)
 ![](https://images-ext-2.discordapp.net/external/AOA18T3UJe4wAzSdGoWzl4IpYMg1wh_dGE-hGsqWsS4/https/f2.toyhou.se/file/f2-toyhou-se/thumbnails/65698651_R4K.gif?width=123&height=70)
 ![](https://images-wixmp-ed30a86b8c4ca887773594c2.wixmp.com/f/f24cb570-85fa-49be-842c-afc5f47a7b03/d12ppy9-0d19b3f9-2ad5-4989-b36b-d1a1c8c4bdf8.png?token=eyJ0eXAiOiJKV1QiLCJhbGciOiJIUzI1NiJ9.eyJzdWIiOiJ1cm46YXBwOjdlMGQxODg5ODIyNjQzNzNhNWYwZDQxNWVhMGQyNmUwIiwiaXNzIjoidXJuOmFwcDo3ZTBkMTg4OTgyMjY0MzczYTVmMGQ0MTVlYTBkMjZlMCIsIm9iaiI6W1t7InBhdGgiOiJcL2ZcL2YyNGNiNTcwLTg1ZmEtNDliZS04NDJjLWFmYzVmNDdhN2IwM1wvZDEycHB5OS0wZDE5YjNmOS0yYWQ1LTQ5ODktYjM2Yi1kMWExYzhjNGJkZjgucG5nIn1dXSwiYXVkIjpbInVybjpzZXJ2aWNlOmZpbGUuZG93bmxvYWQiXX0.GjLRd2R3LPD1N0gUct8m53U3_4xNpI617WXEWuT71Vg)
@@ -34,9 +40,3 @@
 ![](https://images-wixmp-ed30a86b8c4ca887773594c2.wixmp.com/f/0938cf49-2197-4feb-8879-9c4ae5643e1b/d4mawqb-7647e377-4077-4717-a302-1ca3a13808ff.gif?token=eyJ0eXAiOiJKV1QiLCJhbGciOiJIUzI1NiJ9.eyJzdWIiOiJ1cm46YXBwOjdlMGQxODg5ODIyNjQzNzNhNWYwZDQxNWVhMGQyNmUwIiwiaXNzIjoidXJuOmFwcDo3ZTBkMTg4OTgyMjY0MzczYTVmMGQ0MTVlYTBkMjZlMCIsIm9iaiI6W1t7InBhdGgiOiJcL2ZcLzA5MzhjZjQ5LTIxOTctNGZlYi04ODc5LTljNGFlNTY0M2UxYlwvZDRtYXdxYi03NjQ3ZTM3Ny00MDc3LTQ3MTctYTMwMi0xY2EzYTEzODA4ZmYuZ2lmIn1dXSwiYXVkIjpbInVybjpzZXJ2aWNlOmZpbGUuZG93bmxvYWQiXX0.Qmli-SMoX6DCtFSdmXOEBydcvNwSrZA5ZuV4NH3419o)
 ![](https://images-wixmp-ed30a86b8c4ca887773594c2.wixmp.com/f/2a4df430-58e8-459c-b549-dec82a4baf20/do90kj-c2a41ab9-5564-4753-a5b5-3c49474a527a.jpg/v1/fill/w_99,h_56,q_75,strp/deathnote_stamp_by_arcer26_do90kj-fullview.jpg?token=eyJ0eXAiOiJKV1QiLCJhbGciOiJIUzI1NiJ9.eyJzdWIiOiJ1cm46YXBwOjdlMGQxODg5ODIyNjQzNzNhNWYwZDQxNWVhMGQyNmUwIiwiaXNzIjoidXJuOmFwcDo3ZTBkMTg4OTgyMjY0MzczYTVmMGQ0MTVlYTBkMjZlMCIsIm9iaiI6W1t7ImhlaWdodCI6Ijw9NTYiLCJwYXRoIjoiXC9mXC8yYTRkZjQzMC01OGU4LTQ1OWMtYjU0OS1kZWM4MmE0YmFmMjBcL2RvOTBrai1jMmE0MWFiOS01NTY0LTQ3NTMtYTViNS0zYzQ5NDc0YTUyN2EuanBnIiwid2lkdGgiOiI8PTk5In1dXSwiYXVkIjpbInVybjpzZXJ2aWNlOmltYWdlLm9wZXJhdGlvbnMiXX0.gHT2FxOgARuQNmw0zXhSJclWpPzUKVFc4If5sgYKBlc)
 ![](https://images-wixmp-ed30a86b8c4ca887773594c2.wixmp.com/f/72cae400-842a-4383-8678-1172bb3f2361/d15xndy-9b30b73d-3e98-41fd-b2ee-23eded4f1da8.png/v1/fill/w_99,h_56,q_80,strp/enjoy_everything__by_kataimiko_d15xndy-fullview.jpg?token=eyJ0eXAiOiJKV1QiLCJhbGciOiJIUzI1NiJ9.eyJzdWIiOiJ1cm46YXBwOjdlMGQxODg5ODIyNjQzNzNhNWYwZDQxNWVhMGQyNmUwIiwiaXNzIjoidXJuOmFwcDo3ZTBkMTg4OTgyMjY0MzczYTVmMGQ0MTVlYTBkMjZlMCIsIm9iaiI6W1t7ImhlaWdodCI6Ijw9NTYiLCJwYXRoIjoiXC9mXC83MmNhZTQwMC04NDJhLTQzODMtODY3OC0xMTcyYmIzZjIzNjFcL2QxNXhuZHktOWIzMGI3M2QtM2U5OC00MWZkLWIyZWUtMjNlZGVkNGYxZGE4LnBuZyIsIndpZHRoIjoiPD05OSJ9XV0sImF1ZCI6WyJ1cm46c2VydmljZTppbWFnZS5vcGVyYXRpb25zIl19.TyrkiZ7v5g8LSCBrcKwT_3s8qR59XYu61k9bAbGoC3g)
-
-![](https://raining-starss.neocities.org/goodieblink%20(20).gif)
-![](https://i.imgur.com/BTZ2CAL.png)
-![](https://i.imgur.com/8D809rV.png)
-![](https://i.imgur.com/Sv8yjCP.png)
-![](https://i.imgur.com/qlc8bpN.jpg)
