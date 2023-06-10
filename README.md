@@ -3,7 +3,7 @@
 ![](https://i.imgur.com/erkuKHt.gif)
 ![](https://images-wixmp-ed30a86b8c4ca887773594c2.wixmp.com/f/9f2170ea-b4e7-4f8e-b25b-ee1965edae3c/dca1r34-26cff5dc-e4c3-4b20-a77f-2e1b16d24017.gif?token=eyJ0eXAiOiJKV1QiLCJhbGciOiJIUzI1NiJ9.eyJzdWIiOiJ1cm46YXBwOjdlMGQxODg5ODIyNjQzNzNhNWYwZDQxNWVhMGQyNmUwIiwiaXNzIjoidXJuOmFwcDo3ZTBkMTg4OTgyMjY0MzczYTVmMGQ0MTVlYTBkMjZlMCIsIm9iaiI6W1t7InBhdGgiOiJcL2ZcLzlmMjE3MGVhLWI0ZTctNGY4ZS1iMjViLWVlMTk2NWVkYWUzY1wvZGNhMXIzNC0yNmNmZjVkYy1lNGMzLTRiMjAtYTc3Zi0yZTFiMTZkMjQwMTcuZ2lmIn1dXSwiYXVkIjpbInVybjpzZXJ2aWNlOmZpbGUuZG93bmxvYWQiXX0.hfojIlMB24DpBjp1ELc9X0reBmEgdvB0iPop62Ro5W0)
 
-![](https://media.discordapp.net/attachments/1084973755232694302/1116963135883063317/IMG_5378.png?width=606&height=512)
+![](https://media.discordapp.net/attachments/726011643800059914/1116966064237072434/goroakechi.jpg?width=613&height=336)
 
  ![](https://i.imgur.com/Khg6Xsl.gif) 
 ![](https://i.imgur.com/vw3SpXg.gif)
