@@ -1,9 +1,9 @@
-## gotten realistic 
-![](https://i.imgur.com/vjW02Hv.gif)
+
+![](https://media.discordapp.net/attachments/1046945593160896543/1118626222088388708/FymdgaFX0AAFMsJ.jpg?width=526&height=612)
+## stamps buttons and blinkies  ^_^
+ ![](https://i.imgur.com/vjW02Hv.gif)
 ![](https://i.imgur.com/erkuKHt.gif)
 ![](https://images-wixmp-ed30a86b8c4ca887773594c2.wixmp.com/f/9f2170ea-b4e7-4f8e-b25b-ee1965edae3c/dca1r34-26cff5dc-e4c3-4b20-a77f-2e1b16d24017.gif?token=eyJ0eXAiOiJKV1QiLCJhbGciOiJIUzI1NiJ9.eyJzdWIiOiJ1cm46YXBwOjdlMGQxODg5ODIyNjQzNzNhNWYwZDQxNWVhMGQyNmUwIiwiaXNzIjoidXJuOmFwcDo3ZTBkMTg4OTgyMjY0MzczYTVmMGQ0MTVlYTBkMjZlMCIsIm9iaiI6W1t7InBhdGgiOiJcL2ZcLzlmMjE3MGVhLWI0ZTctNGY4ZS1iMjViLWVlMTk2NWVkYWUzY1wvZGNhMXIzNC0yNmNmZjVkYy1lNGMzLTRiMjAtYTc3Zi0yZTFiMTZkMjQwMTcuZ2lmIn1dXSwiYXVkIjpbInVybjpzZXJ2aWNlOmZpbGUuZG93bmxvYWQiXX0.hfojIlMB24DpBjp1ELc9X0reBmEgdvB0iPop62Ro5W0)
-
-![](https://media.discordapp.net/attachments/726011643800059914/1113337550728351775/IMG_5308.jpg?width=625&height=351)
 
  ![](https://i.imgur.com/Khg6Xsl.gif) 
 ![](https://i.imgur.com/vw3SpXg.gif)
