@@ -23,7 +23,7 @@
 
 ![](https://external-media.spacehey.net/media/sY49J23KaVWvOnYtRZOzga73pMx9N9szGUwlD02esDeI=/https://64.media.tumblr.com/2deb19fe79d3b9b883748898e138cdda/d4d596df6bde767e-e6/s250x400/e209e303918a2c4a4d94c588d178ba30702c8f5c.pnj)
 ![](https://64.media.tumblr.com/43068ec04945ebf777f233d0fb94f3ea/2f5a454715708c8a-2c/s250x400/4674a4e2016367e695a6b69f988ad1beebc9160d.gifv)
-![](https://i.imgur.com/Dj8zc4c.jpg)
+![](https://64.media.tumblr.com/968abff8dcc30365eeab8c8d381f7a1c/022c4bae44439451-8f/s250x400/53782b3a70025dd55fb963702d5c580d4adba817.gifv)
 ![](https://images-ext-2.discordapp.net/external/AOA18T3UJe4wAzSdGoWzl4IpYMg1wh_dGE-hGsqWsS4/https/f2.toyhou.se/file/f2-toyhou-se/thumbnails/65698651_R4K.gif?width=123&height=70)
 ![](https://images-wixmp-ed30a86b8c4ca887773594c2.wixmp.com/f/f24cb570-85fa-49be-842c-afc5f47a7b03/d12ppy9-0d19b3f9-2ad5-4989-b36b-d1a1c8c4bdf8.png?token=eyJ0eXAiOiJKV1QiLCJhbGciOiJIUzI1NiJ9.eyJzdWIiOiJ1cm46YXBwOjdlMGQxODg5ODIyNjQzNzNhNWYwZDQxNWVhMGQyNmUwIiwiaXNzIjoidXJuOmFwcDo3ZTBkMTg4OTgyMjY0MzczYTVmMGQ0MTVlYTBkMjZlMCIsIm9iaiI6W1t7InBhdGgiOiJcL2ZcL2YyNGNiNTcwLTg1ZmEtNDliZS04NDJjLWFmYzVmNDdhN2IwM1wvZDEycHB5OS0wZDE5YjNmOS0yYWQ1LTQ5ODktYjM2Yi1kMWExYzhjNGJkZjgucG5nIn1dXSwiYXVkIjpbInVybjpzZXJ2aWNlOmZpbGUuZG93bmxvYWQiXX0.GjLRd2R3LPD1N0gUct8m53U3_4xNpI617WXEWuT71Vg)
 
