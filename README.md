@@ -1,3 +1,6 @@
+## my awesome and Cute friends
+![](https://media.discordapp.net/attachments/1137961441857654794/1138290083963883570/image.png?width=778&height=373)
+
 ## stamps buttons and blinkies
  ![](https://i.imgur.com/vjW02Hv.gif)
 ![](https://i.imgur.com/erkuKHt.gif)
