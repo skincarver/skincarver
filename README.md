@@ -1,6 +1,3 @@
-## my awesome and Cute friends
-![](https://media.discordapp.net/attachments/1137961441857654794/1138290083963883570/image.png?width=778&height=373)
-
 ## stamps buttons and blinkies
  ![](https://i.imgur.com/vjW02Hv.gif)
 ![](https://i.imgur.com/erkuKHt.gif)
@@ -49,3 +46,5 @@
 ![](https://images-wixmp-ed30a86b8c4ca887773594c2.wixmp.com/f/9730181a-26bb-4716-8a12-b6f5d6caac92/d1xadvm-0c9e2184-24d7-4db8-a074-a2ca7b70fa12.jpg?token=eyJ0eXAiOiJKV1QiLCJhbGciOiJIUzI1NiJ9.eyJzdWIiOiJ1cm46YXBwOjdlMGQxODg5ODIyNjQzNzNhNWYwZDQxNWVhMGQyNmUwIiwiaXNzIjoidXJuOmFwcDo3ZTBkMTg4OTgyMjY0MzczYTVmMGQ0MTVlYTBkMjZlMCIsIm9iaiI6W1t7InBhdGgiOiJcL2ZcLzk3MzAxODFhLTI2YmItNDcxNi04YTEyLWI2ZjVkNmNhYWM5MlwvZDF4YWR2bS0wYzllMjE4NC0yNGQ3LTRkYjgtYTA3NC1hMmNhN2I3MGZhMTIuanBnIn1dXSwiYXVkIjpbInVybjpzZXJ2aWNlOmZpbGUuZG93bmxvYWQiXX0.4ZQUQ_P0EHKl9lcBCKOMORo6eCETF5kIaz5HC1wyi7o)
 
 ![](https://media.discordapp.net/attachments/1046945593160896543/1118626222088388708/FymdgaFX0AAFMsJ.jpg?width=526&height=612)
+## my awesome and Cute friends btw
+![](https://media.discordapp.net/attachments/1137961441857654794/1138290083963883570/image.png?width=778&height=373)
