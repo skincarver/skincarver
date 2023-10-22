@@ -1,3 +1,3 @@
 
-![](https://media.discordapp.net/attachments/1046945593160896543/1118626222088388708/FymdgaFX0AAFMsJ.jpg?width=526&height=612)
+![](https://i.pinimg.com/564x/57/7e/31/577e31e3c03ec557e1b0fe928d36832b.jpg)
 
