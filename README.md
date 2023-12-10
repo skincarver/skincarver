@@ -2,6 +2,6 @@
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ( vy ) or vinh ｡
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ㆍ he any ⏑ ![](https://64.media.tumblr.com/9f7ecc1d719df954b9ef9d300268ed33/357d0aaf22f6be18-fd/s75x75_c1/80881079be865e2867691625767e8e5f4c26aeef.gifv)
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ㆍ he any ⏑ ![](https://64.media.tumblr.com/6c839d3b6beca938e20efe1bd53f337c/8d9770f3eed181f7-2a/s250x400/86f15296864158cb988ae286316771f73c90e5d2.pnj)
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ⌒  unlabeled ◞  tkn ❜
