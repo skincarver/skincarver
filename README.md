@@ -2,6 +2,6 @@
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ![](https://vermillion.drr.ac/assets/images/gallery01/55eebf3d.gif?v=4455def1) ( vy ) or vinh ｡
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ㆍ he any ⏑ ![](https://64.media.tumblr.com/6c839d3b6beca938e20efe1bd53f337c/8d9770f3eed181f7-2a/s250x400/86f15296864158cb988ae286316771f73c90e5d2.pnj)
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ㆍ he any ⏑ 
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ⌒  unlabeled ◞  tkn ❜
