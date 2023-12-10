@@ -1,6 +1,6 @@
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ![](https://64.media.tumblr.com/948c3716d18398ac3df8f05d6ea81a61/8d9770f3eed181f7-9b/s250x400/4e7b83d8c088c1c1cc7c64404e99844384c79e99.pnj)
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ![](https://media.discordapp.net/attachments/860333357169508355/1163715974462177331/WHITE_DIVIDER.png?ex=654095f5&is=652e20f5&hm=c290261392f01dc8cccaded1193c82b27ab6718dd1641225dbed6ecd6cd93546&=)
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ![](https://media.discordapp.net/attachments/860333357169508355/1090276835524350102/oie_28161021ZmWpepH6.png) ( vy ) or vinh ｡
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ![](https://media.discordapp.net/attachments/860333357169508355/1055308663159533578/PVHECEE.png) ( vy ) or vinh ｡
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ㆍ he any ⏑ 
 
