@@ -2,6 +2,6 @@
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ>ᴗ< ( vy ) or vinh 
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ㆍ he any ⏑ ![](https://media.discordapp.net/attachments/860333357169508355/1055308663159533578/PVHECEE.png)
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ  he ㆍ any ⏑ ![](https://media.discordapp.net/attachments/860333357169508355/1055308663159533578/PVHECEE.png)
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ⌒  unlabeled ◞  tkn ❜
