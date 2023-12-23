@@ -1,10 +1,3 @@
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ![](https://media.discordapp.net/attachments/860333357169508355/1163715974462177331/WHITE_DIVIDER.png?ex=654095f5&is=652e20f5&hm=c290261392f01dc8cccaded1193c82b27ab6718dd1641225dbed6ecd6cd93546&=)
+no cloud u cant do a trple backflip theyll kill you cloud THEYLL
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ>ᴗ< ( vy ) or roxas 
-
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ  he ㆍ any ⏑ ![](https://media.discordapp.net/attachments/860333357169508355/1055308663159533578/PVHECEE.png)
-
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ![](https://media.discordapp.net/attachments/860333357169508355/1055333638893482075/Qx8zkvv.png)   infp ◞  4w5  ⌒   
-
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ[![](https://64.media.tumblr.com/9bcc96a8d279423ad6909e7d877805b0/b7597f61c0b364ad-2a/s75x75_c1/c91e57d167bee9cfa58d0dff49e81fbf48ef052c.pnj)](https://naruto.fandom.com/wiki/Sasuke_Uchiha) ㅤㅤ[![](https://64.media.tumblr.com/73d91bddfdc2f3ba3af80c8c53859fc9/b7597f61c0b364ad-3c/s75x75_c1/a5e5a3a4417d98bd31444ef74dbeced70087c6dd.pnj)](https://www.khwiki.com/Roxas) ㅤㅤ[![](https://64.media.tumblr.com/e10f8bbdcfcddb51fabd68787845ad30/b7597f61c0b364ad-13/s75x75_c1/53909f50a7380895a98776c6cd654ad47c4f62ad.pnj)](https://hannibal.fandom.com/wiki/Will_Graham_(TV))
-
+![](https://images-wixmp-ed30a86b8c4ca887773594c2.wixmp.com/f/58b20842-7f2e-45a5-b198-3d0957779e7c/dagu9ge-489410d3-9781-4c4c-9001-ab1346fd8fde.gif?token=eyJ0eXAiOiJKV1QiLCJhbGciOiJIUzI1NiJ9.eyJzdWIiOiJ1cm46YXBwOjdlMGQxODg5ODIyNjQzNzNhNWYwZDQxNWVhMGQyNmUwIiwiaXNzIjoidXJuOmFwcDo3ZTBkMTg4OTgyMjY0MzczYTVmMGQ0MTVlYTBkMjZlMCIsIm9iaiI6W1t7InBhdGgiOiJcL2ZcLzU4YjIwODQyLTdmMmUtNDVhNS1iMTk4LTNkMDk1Nzc3OWU3Y1wvZGFndTlnZS00ODk0MTBkMy05NzgxLTRjNGMtOTAwMS1hYjEzNDZmZDhmZGUuZ2lmIn1dXSwiYXVkIjpbInVybjpzZXJ2aWNlOmZpbGUuZG93bmxvYWQiXX0.gzVW9gy5IeZTWYyX5CPVdh1emU_JFlDpFNZxLWuz9KU)
