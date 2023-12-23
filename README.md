@@ -1,3 +1,3 @@
-no cloud u cant do a trple backflip theyll kill you cloud THEYLL
+no cloud strife (ssb4) u cant do a triple backflip theyll kill you cloud THEYLL
 
 ![](https://images-wixmp-ed30a86b8c4ca887773594c2.wixmp.com/f/58b20842-7f2e-45a5-b198-3d0957779e7c/dagu9ge-489410d3-9781-4c4c-9001-ab1346fd8fde.gif?token=eyJ0eXAiOiJKV1QiLCJhbGciOiJIUzI1NiJ9.eyJzdWIiOiJ1cm46YXBwOjdlMGQxODg5ODIyNjQzNzNhNWYwZDQxNWVhMGQyNmUwIiwiaXNzIjoidXJuOmFwcDo3ZTBkMTg4OTgyMjY0MzczYTVmMGQ0MTVlYTBkMjZlMCIsIm9iaiI6W1t7InBhdGgiOiJcL2ZcLzU4YjIwODQyLTdmMmUtNDVhNS1iMTk4LTNkMDk1Nzc3OWU3Y1wvZGFndTlnZS00ODk0MTBkMy05NzgxLTRjNGMtOTAwMS1hYjEzNDZmZDhmZGUuZ2lmIn1dXSwiYXVkIjpbInVybjpzZXJ2aWNlOmZpbGUuZG93bmxvYWQiXX0.gzVW9gy5IeZTWYyX5CPVdh1emU_JFlDpFNZxLWuz9KU)
