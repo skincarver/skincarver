@@ -1,3 +1,8 @@
-no cloud strife (ssb4) u cant do a triple backflip theyll kill you cloud THEYLL
+"Y u got 100 days worth of playtime on ponytown vy" 
+"Yr a freak vy"
+"Kill yourslef vy"
 
-![](https://images-wixmp-ed30a86b8c4ca887773594c2.wixmp.com/f/58b20842-7f2e-45a5-b198-3d0957779e7c/dagu9ge-489410d3-9781-4c4c-9001-ab1346fd8fde.gif?token=eyJ0eXAiOiJKV1QiLCJhbGciOiJIUzI1NiJ9.eyJzdWIiOiJ1cm46YXBwOjdlMGQxODg5ODIyNjQzNzNhNWYwZDQxNWVhMGQyNmUwIiwiaXNzIjoidXJuOmFwcDo3ZTBkMTg4OTgyMjY0MzczYTVmMGQ0MTVlYTBkMjZlMCIsIm9iaiI6W1t7InBhdGgiOiJcL2ZcLzU4YjIwODQyLTdmMmUtNDVhNS1iMTk4LTNkMDk1Nzc3OWU3Y1wvZGFndTlnZS00ODk0MTBkMy05NzgxLTRjNGMtOTAwMS1hYjEzNDZmZDhmZGUuZ2lmIn1dXSwiYXVkIjpbInVybjpzZXJ2aWNlOmZpbGUuZG93bmxvYWQiXX0.gzVW9gy5IeZTWYyX5CPVdh1emU_JFlDpFNZxLWuz9KU)
+these two dudes from dmmd making out Wet And Sloppy style: 
+
+
+![](https://media.discordapp.net/attachments/727258187207540846/1189782591155474583/IMG_7042.jpg?ex=659f6a62&is=658cf562&hm=bc5a5a4e87b38b1b066321dfdf8af4ea44a2e285859b5100bf1a6893918019a3&=&format=webp&width=705&height=396)
