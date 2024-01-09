@@ -1,6 +1,6 @@
 ![](https://i.pinimg.com/564x/97/9a/5a/979a5a785868f04a485082cae08abf5d.jpg)
 
-![](https://camo.githubusercontent.com/366a58cf6bb07375749910a72a0703d2957d7bf0742a950b97a5cfec43d7bd14/68747470733a2f2f692e696d6775722e636f6d2f384438303972562e706e67)![](https://external-media.spacehey.net/media/saqFJU6AI2KnycMjcJG6mKS4Y1vWKBM_113O7f33NdQE=/https://y2k.neocities.org/stamps/tumblr_pgef2uZbKY1xzybrpo2_100.png)![[](https://i.imgur.com/ChYBrKB.png)
+![](https://camo.githubusercontent.com/366a58cf6bb07375749910a72a0703d2957d7bf0742a950b97a5cfec43d7bd14/68747470733a2f2f692e696d6775722e636f6d2f384438303972562e706e67)![](https://external-media.spacehey.net/media/saqFJU6AI2KnycMjcJG6mKS4Y1vWKBM_113O7f33NdQE=/https://y2k.neocities.org/stamps/tumblr_pgef2uZbKY1xzybrpo2_100.png)![](https://i.imgur.com/ChYBrKB.png)
 
 thank u for putting me on this Btw Whoeevr u are https://rentry.co/github-tierlist
 
