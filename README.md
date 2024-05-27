@@ -3,6 +3,3 @@
 
    ![](https://files.catbox.moe/dzsirv.webp)
 
-let S. Try . the vinh sandwich
-
-spits out Ah 
