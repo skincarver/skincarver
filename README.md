@@ -3,3 +3,7 @@
 
    ![](https://files.catbox.moe/dzsirv.webp)
 
+
+VinhTahliaKae in heaven Wat cloud the fujoshis go on👀?
+
+God: GET OUT!!!!!!!!!
