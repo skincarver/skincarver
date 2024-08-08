@@ -4,4 +4,4 @@
    ![](https://files.catbox.moe/dzsirv.webp)
 
 
-If my Son ever come out as gay i am sending him to ZEROBASEONE because those boys are F R EA K Y !!!!!!And i will NOT.Let my son miss out on the biggest GAY opportunity of his l
+i sit with people when im bored im c+h Final Boss
