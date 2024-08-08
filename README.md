@@ -4,4 +4,4 @@
    ![](https://files.catbox.moe/dzsirv.webp)
 
 
-i sit with people when im bored im c+h Final Boss
+i sit with random people when im boredNo i dont know u. N I DONT CARE!!!!!! im c+h Final Boss
