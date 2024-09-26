@@ -4,4 +4,4 @@
    ![](https://files.catbox.moe/dzsirv.webp)
 
 
-Ok so dni ivantill fans n kuroaka fans n skyrrus fans n shuake fans anndDeep breath and vincero
+this is the [spotify blend](https://open.spotify.com/playlist/37i9dQZF1EJu0ZxyY3Ybtu?si=bbiVM8PfS0-S9QLf1F-Qug) my friends and i listen to while playing ponytown if u ever wanted a glimpse into our dark autistic minds 
