@@ -1,2 +1,2 @@
 
-->![](https://64.media.tumblr.com/a18f921827fb7339280cf9d9f40819f6/04b76b6cbe096e15-f9/s400x600/20ebff38cc6346d91f19d0d9e31dc0380c813393.gifv)<-
+![](https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcTpP1AjnlsJaIX8n3rlldTZpBWBBHdUMDj2kQ&s)
