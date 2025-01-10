@@ -8,6 +8,8 @@ jimcurly
 
 lil shine 
 
+narusasu
+
 african fortnite gaming on spotify 
 
 telegram
