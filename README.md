@@ -8,7 +8,7 @@ jimcurly
 
 lil shine 
 
-narusasu
+narusasu AND obikaka AND sakuino
 
 african fortnite gaming on spotify 
 
