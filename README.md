@@ -7,3 +7,5 @@ YES we are following 7k people on github and NO we havent coded anything in our 
 YES we are 15
 
 NO we haven't watched mlp
+
+AMEN
