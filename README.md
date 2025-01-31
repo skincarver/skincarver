@@ -8,4 +8,6 @@ YES we are 15
 
 NO we haven't watched mlp
 
+YES we are edgy and love eroguro yaoi
+
 AMEN
