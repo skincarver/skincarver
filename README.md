@@ -1,9 +1,8 @@
-YES WE PLAY PONYTOWN
+YES we play ponytown
 
-YES WE COLORPICK
+YES we colorpick
 
-YES WE SPAM FOLLOW ON GITHUB
+YES we are following 7k people on github and NO we havent coded anything in our lives
 
-YES WE ARE 14 
+YES we are 15
 
-YES WE'RE WHITE
