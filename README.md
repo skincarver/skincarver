@@ -1,7 +1,5 @@
 
 
-![](https://i.pinimg.com/736x/4a/c4/75/4ac47586fa5b269af72cf01deb80fbc3.jpg)
-
 06:05 PM[sick and TIRED.w2i c+h] whispers: bags I Better Not See at School 1.vinh
 
 
