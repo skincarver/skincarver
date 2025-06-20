@@ -1,15 +1,6 @@
 
 
-
-06:05 PM[sick and TIRED.w2i c+h] whispers: bags I Better Not See at School 1.vinh
-
-06:05 PM[sick and TIRED.w2i c+h] whispers: bags I Better Not See at School 1.vinh
-
-06:05 PM[sick and TIRED.w2i c+h] whispers: bags I Better Not See at School 1.vinh
-
-06:05 PM[sick and TIRED.w2i c+h] whispers: bags I Better Not See at School 1.vinh
-
-06:05 PM[sick and TIRED.w2i c+h] whispers: bags I Better Not See at School 1.vinh
+![](https://i.pinimg.com/736x/8f/7d/b6/8f7db61dda7e1d49b1cb127a22d0ffb5.jpg)
 
 06:05 PM[sick and TIRED.w2i c+h] whispers: bags I Better Not See at School 1.vinh
 
