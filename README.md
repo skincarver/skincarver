@@ -19,4 +19,4 @@
 
 i block spam followers... dont group me in drama Pleek I dont car
 
-im scared to int first but come up2 me i promsei im nice 
+im scared to int first i usually just hang wif my friends but come up2 me i promsei im nice 
