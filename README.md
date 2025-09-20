@@ -7,6 +7,4 @@ i block spam followers... dont group me in drama Pleek I dont car
 
 i never int first i usually just hang wif my friends but come up2 me or sit with me i promsei im nice. also im rarely online Aigo gomen
 
-i sit with strangers unprompted idgaf i just dont like sitting alone so Hi bruh
-
 im proship profic watever term u wanna use im also vietnamese these are my warnings 2 You.
